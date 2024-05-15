@@ -1,4 +1,4 @@
-# Hi there, I'm Kayumba Jean MaryVianney(Marivia)! 👋
+# Hi there, I'm Kayumba Jean Mary Vianney(Marivia)! 👋
 
 Welcome to my GitHub profile!
 
